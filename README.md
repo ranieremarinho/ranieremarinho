@@ -17,6 +17,9 @@ sistemas mobiles e para web.
 Muito tenho a aprender, mas esse não é um desafio, e sim uma diversão.
 
 Contato:
+
 Linkedin: https://www.linkedin.com/in/ranieremarinho
+
 Site: http://www.ranieremarinho.com.br
+
 E-mail: raniere@ranieremarinho.com
