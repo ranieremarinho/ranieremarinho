@@ -11,7 +11,5 @@ Muito tenho a aprender, mas esse não é um desafio, e sim uma diversão.
 
 Linkedin: [linkedin.com/in/ranieremarinho](www.linkedin.com/in/ranieremarinho)
 
-Site: [ranieremarinho.com.br](http://www.ranieremarinho.com.br)
-
-E-mail: [raniere@ranieremarinho.com](raniere@ranieremarinho.com)
+E-mail: [ranieremarinho@gmail.com](ranieremarinho@gmail.com)
 
